@@ -8,7 +8,7 @@
 - 3 cloves garlic (sliced)
 - 1/4 tsp salt
 - 1/4 tsp pepper
-- 1/3 cup grated parmesan 
+- 1/2 cup grated parmesan 
 - 1/2 lemon (juice)
 
 ## Instructions
