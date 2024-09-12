@@ -4,7 +4,7 @@
 ## Ingredients
 
 - 2 heads broccoli 
-- 3 tbsp eolive oil
+- 3 tbsp olive oil
 - 3 cloves garlic (sliced)
 - 1/4 tsp salt
 - 1/4 tsp pepper
